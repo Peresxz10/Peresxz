@@ -3,6 +3,7 @@
 - # Eu amo a Alemanha e Ucrania 🧆
 - # Meu jogo favorito é Brawl Stars ⏰
 - # Meu anime preferido é Pokemon y e z 🥇
+- # Sou um garoto alpha e sigma, bora bill
 
 ![](https://media.tenor.com/ScQwfl9WmkUAAAAC/germany-flag.gif)
 
