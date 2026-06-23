@@ -3,4 +3,6 @@
 - # Eu amo a Alemanha e Ucrania 🧆
 - # Meu jogo favorito é Brawl Stars ⏰
 - # Meu anime preferido é Pokemon y e z 🥇
-- ![](<img width="498" height="311" alt="image" src="https://github.com/user-attachments/assets/ce684587-7504-4403-a6cf-555e4fd48c0d" />)
+
+![](<img width="498" height="311" alt="image" src="https://github.com/user-attachments/assets/3353fc57-38bc-4306-8430-9051efba99ef" />)
+
